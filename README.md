@@ -1,0 +1,2 @@
+# clash-Ai-Rules
+Clash
